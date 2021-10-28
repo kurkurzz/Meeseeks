@@ -1,2 +1,2 @@
 # Meeseeks
- Meeseeks born with purpose, what's yours?
+ Meeseeks born with purpose, do you?
